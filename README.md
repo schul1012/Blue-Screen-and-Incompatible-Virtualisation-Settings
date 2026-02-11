@@ -1,0 +1,1 @@
+# Blue-Screen-and-Incompatible-Virtualisation-Settings
